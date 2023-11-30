@@ -18,4 +18,3 @@
 
 - ⚡ Fun fact: I have two turtles as pets that are older than me 🐢.
 
-![Uploading image.png…]()
